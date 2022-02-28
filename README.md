@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @Timetoaster5
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Hi, I’m @Timetoaster I laik cod and mafs 
+- 👀 I’m interested in cod an lienax
+- 🌱 I’m currently learning lieanax and C
+- 💞️ I’m looking to collaborate on cod
+- 📫 How to reach me email: wraththelokijr@gmail.com I nevar chec emal tho 
+
+-i am still noob
 
 <!---
 Timetoaster5/Timetoaster5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
