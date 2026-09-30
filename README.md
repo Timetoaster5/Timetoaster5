@@ -2,7 +2,7 @@
 - 👀 I’m interested in cod an lienax
 - 🌱 I’m currently learning lieanax and raw binaery hand typd no hecks editor just 50 language keyboards 
 - 💞️ I’m looking to collaborate on cod
-- 📫 How to reach me email: wraththelokijr@gmail.com I nevar chec emal tho 
+- 📫 How to reach me email: wraththelokijr@gmail.com I nevar chec emal tho, also my email hit the limit so I cant receive more emails :fire: 
 
 -i am still noob
 
